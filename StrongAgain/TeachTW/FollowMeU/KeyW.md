@@ -22,3 +22,4 @@
 [思维能力图](https://github.com/booklibrary16/SafeguardWorld/blob/master/StrongAgain/TeachTW/FollowMeU/ThinkPic.md)      
 
 11，必须严格管制自己的关注点，它将驱使你成为那样的人。     
+
